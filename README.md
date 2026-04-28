@@ -1,1 +1,0 @@
-# Aadhaar_info
